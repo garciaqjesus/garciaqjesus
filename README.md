@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Android, Servers**
 
-- 📫 How to reach me **jesusgq08@hotmail.com**
+- 📫 How to reach me **client.thexhosting.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
